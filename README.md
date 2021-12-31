@@ -5,7 +5,7 @@ The woke Trump:
 
 ![Woke Trump](Woke-Trump.png)
 
-The sheeple Trump:
+The sleeple Trump:
 
 ![Sheeple Trump](Sheeple-Trump.png)
 
